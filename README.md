@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @AsherSFDex
-- 👀 I’m interested in Make Deports.
-- 🌱 I’m currently learning A book.
-- 💞️ I’m looking to collaborate on Peoples with good experience to GitHub.
+- 👀 I’m interested In make a script for Roblox.
+- 🌱 I’m currently learning To make scripts.
+- 💞️ I’m looking to collaborate with Peoples with good experience to GitHub.
 - 📫 How to reach me, On discord My discord is: Srxaaxbruh#0899
 
 <!---
